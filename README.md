@@ -4,3 +4,5 @@
 * reliable
 * created by the most professional Dev on Krolowej Jadwigi
 * very nice
+
+_Note_ i eat bigos and you?
